@@ -50,3 +50,7 @@ It will be so *fun* when everybody will use it and we should manage `100` confli
 
 Master and branches power
 
+There once was an andoid named _2B_
+
+She was part of the *YoRHa* group
+> This group was created for mankind's salavation after being invaded from space
