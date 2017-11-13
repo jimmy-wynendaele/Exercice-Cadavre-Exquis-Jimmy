@@ -54,4 +54,10 @@ Master and branches power
 1. push eggs
 1. pull york
 1. merge sugar
-1. push cake 
+1. push cake  
+ 
+ Here's a nice one. 
+ 
+ What do you call a bunch of white guys sitting on a bench ? 
+ 
+ The NBA.
