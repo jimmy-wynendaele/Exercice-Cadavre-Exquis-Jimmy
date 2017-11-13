@@ -26,3 +26,8 @@ I'll be waiting
 
 
 # un trou noir c'est troublant!!!!!
+
+## In every job that must be done
+## There is an element of fun
+## You find the fun and snap!
+## **The job's a game**
