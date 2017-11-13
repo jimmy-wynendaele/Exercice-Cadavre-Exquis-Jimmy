@@ -31,3 +31,6 @@ I'll be waiting
 ## There is an element of fun
 ## You find the fun and snap!
 ## **The job's a game**
+
+**Please other peeps** Stop using Hashtags
+Its getting annoying. KTHXBAI
