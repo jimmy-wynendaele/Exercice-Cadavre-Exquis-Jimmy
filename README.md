@@ -42,3 +42,11 @@ PUSH IT TO THE LIMIT
 ### Pun :
 
 A friend of mine tried to annoy me with bird puns, but I soon realized that toucan play at that game.
+
+
+We love [GitHub](https://github.com) so much :heart:
+
+It will be so *fun* when everybody will use it and we should manage `100` conflicts.
+
+Master and branches power
+
