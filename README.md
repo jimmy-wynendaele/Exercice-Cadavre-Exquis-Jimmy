@@ -50,3 +50,8 @@ It will be so *fun* when everybody will use it and we should manage `100` confli
 
 Master and branches power
 
+1. get flower 
+1. push eggs
+1. pull york
+1. merge sugar
+1. push cake 
