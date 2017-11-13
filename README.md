@@ -37,3 +37,8 @@ Its getting annoying. KTHXBAI
 
 
 PUSH IT TO THE LIMIT
+
+
+### Pun :
+
+A friend of mine tried to annoy me with bird puns, but I soon realized that toucan play at that game.
