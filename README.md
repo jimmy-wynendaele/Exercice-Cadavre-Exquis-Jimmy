@@ -55,3 +55,12 @@ Master and branches power
 1. pull york
 1. merge sugar
 1. push cake 
+
+
+
+
+Dang Maurice is such a cool shrimp..
+
+The other day he helped this granny cross the street despite his small size.
+
+He also offered me 3 bucks to buy some eggs for this new cake recipe I'm working on at the moment!
