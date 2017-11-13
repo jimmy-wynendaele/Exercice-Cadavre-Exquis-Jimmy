@@ -11,3 +11,11 @@ It was a large lovely garden,
 with soft green grass.
 
  Here and there over the grass stood beautiful flowers like stars,
+
+ I'm in love with a shooting star
+
+But she moves so fast
+
+When she falls then
+
+I'll be waiting
